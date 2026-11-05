@@ -1,0 +1,13 @@
+##################
+Voćka poslije kiše
+##################
+
+| Gle malu voćku poslije kiše:
+| Puna je kapi, pa ih njiše.
+| I bliješti, suncem obasjana,
+| Čudesna raskoš njenih grana.
+|
+| Al nek se sunce malko skrije,
+| Nestane sve te čarolije.
+| Ona je opet, kao prvo,
+| Obično, malo, jadno drvo.
